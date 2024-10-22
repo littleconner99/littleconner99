@@ -1,4 +1,5 @@
  I like video games  
+ I HATE playing video games
  I like making video games  
  I like testing video games  
 I like watching video games 
